@@ -1,0 +1,16 @@
+We pick up in the Dragon Shrine inside the [[Raiders Camp]] just after the characters get revenge on [[Langdedrosa Cyanwrath]] for killing [[Korinn]]. Before anything can really happen the party hears the sounds of footsteps, worried that it's going to be another enmy they all tense up, but Calib, but in walks a blue dragonborn named [[Roxanya]] After some grieving, Calib picks up Korinns body and heads up the 30 foot rope ladder that leads to [[Frulam Mondath]] room. 
+Once all the characters get up in the room Frulam talks to them for a few minutes before recognizing Miri from the Raiders camp. She assumes the characters have already smashed the dragon eggs since they came from that direction and that Langdedrosa must be dead as well. Realizing this she calls for the guards and 4 cultists and 4 guards come running in to help. 
+
+It was a pretty close fight because of Frulam's guardian spirits but the characters survive and realizing he's the lone man standing the final guard surrenders, noting he doesn't get paid enough and that he doesn't want to die. The characters interrogate him and he informs them of where the eggs are. The characters then raid the room, getting Frulam's "Wearer of Purple" robes and in her room they find a simple map of the Greenfields showing where the Cult has attacked and looted. They also see an arrow sketched in from the Greenfields toward the West and the town of Beregost on the Trade Way, where the arrow turns north. They find a note that states that everything must be freighted north to Naerytar and some bad poetry about dragons. 
+
+After the looting has been done the characters find a lone guard passed out from drinking too much wine and [[Calib]] kills him swiftly and then fills up about a half a bottle of wine and getting 16gp. 
+
+They then turn their eyes towards the dragon hatchery. Once they get in the room they meet a [[Roper.png]] that they named Richard the Boulder
+
+They then were warned by the Roper that there were 4 Kobolds hiding and Calib and Miri made swift work of them. After that the party found 3 Black dragon eggs and 2 Guard Drakes down in the pit. Mori and Peeta kept the drakes distracted while Miri and Calib looked at the eggs. Mori decided she wanted to keep one, so Calib smashed the other two and gave some of his acid breath to help the other hatch faster. 
+
+While waiting the party went outside to make a pyre for Korinn, as is dragonborn tradition. The party tried their best to stay away but most fell asleep and took a long rest. After all that was left was ashes Calib scooped up some into a bag and they all went inside to check on the egg. Shortly after going inside the egg hatched and Miri was instantly in love with Obsidian, or Obie. He got to have a few sweet moments of life, having some meat and releasing his acid breath, but to reasons unknown he then perished a very sad death.
+
+The party then decided it was best to go back to Greenest to claim their reward from Leosin. But upon arrive Govenor Nighthill informed them that Leosin went back to Elturel and he left a messag for the party to meet him there and to also search out Ontharr Frume. Leosin was nice enough to not only leave payment for the party but he also bought horses and supplies for them to use for their journey. 
+
+The party decided to rest here and to prepare for their journey to Elturel

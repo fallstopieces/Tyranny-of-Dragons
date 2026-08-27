@@ -1,0 +1,1 @@
+Escobert is a shield dwarf with knotted, tangled, bright red hair. As master of the keep, Escobert is in charge of its defense and is the best source of information on the tunnel and the sally port 

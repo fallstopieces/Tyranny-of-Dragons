@@ -1,0 +1,1 @@
+![[Mori Picture.png]]

@@ -1,0 +1,3 @@
+The man who runs Greenest is Tarbaw Nighthill, a human male of sixty years. If characters ask who’s in charge, they are directed to Nighthill. He is pacing atop the parapet of the keep when the sky is clear, or inside the keep if the dragon is attacking. If the characters don’t seek out the governor when they reach the keep, he finds them. Either way, Nighthill welcomes them and takes them to the parapet. From there, they have the best view of Greenest.
+
+The right side of Nighthill’s face and head are bandaged, his right arm hangs in a sling, and his light blue tunic is stained with his own blood. He received these wounds during the early stages of the attack and hasn’t spared the time for more than cursory first aid.

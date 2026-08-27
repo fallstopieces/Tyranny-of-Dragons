@@ -1,0 +1,3 @@
+Not much is known right now about Leosin except he was a monk that allowed himself to get captured to know more about the Cult of the Dragon and what they were up to. He was uncooperative when the party tried to rescue him from the [[Raiders Camp]] and had to get knocked out by Korinn. His apprentice [[Nesim Waladra]] was concerned for him and that's who sent the party to look for him. Leosin then hired the party to go back to the camp to see if they were still there and if they weren't see if they could tell what direction they went and to see if they left anything behind. He is now waiting for the party in Elturel.
+
+![[Leosin Erlanthar.png]]

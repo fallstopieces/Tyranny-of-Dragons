@@ -1,0 +1,4 @@
+
+Langdedrosa dueled Korinn in [[Greenest]] and of course won. Thankfully healers were on hand to heal Korinn, again. But what the party didn't know is that Langdedrosa would be in the Dragon Hatchery in the [[Raiders Camp]] Once he recognized the party he made [[Korinn]] a deal, fight him and if he loses his beserkers would walk away but if he wins he'd allow the party to take her body and leave. But unfortuantly for Korinn she did not win and her brother found her again just as she was taking her last breath and then got his revenge. Which is where Langdedrosa's story ends. 
+
+![[Langdedrosa.png]]
