@@ -1,0 +1,1 @@
+She was one of the first people that the party encountered in [[Greenest]]. She was wounded but she was defending her even more wounded husband and 3 children. The party rescued them and got them safely to the keep. Where [[Korinn]] entrusted her to give back all the stolen goods they recovered. 

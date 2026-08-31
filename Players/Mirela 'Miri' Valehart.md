@@ -15,7 +15,7 @@
 > • Elowen Valehart, Mother (47)
 > • Tobin Valehart, Brother (27)
 
-![[Miri and Dragonclaw.png]]
+![[miri.png]]
 >
 > APPEARANCE:
 > 

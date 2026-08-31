@@ -1,0 +1,1 @@
+After returning safely from the raiders’ camp, the party received accommodations, food, clean clothing, and payment from [[Governor Nighthill of Greenest]]. 

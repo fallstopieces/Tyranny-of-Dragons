@@ -1,0 +1,1 @@
+![[Peeta.png]]Peeta was rescued in the Raider's camp. [[Korinn]] befriended him and he grieved for her when she died. Last seen was at Korinn's funeral pyre.
