@@ -27,11 +27,39 @@ Our latest adventure.
 
 ---
 
+### ⚔️ Session 4
+[[The Hatchery and farewell to Friend]]
+
+The adventure continues.
+
+---
+
+### ⚔️ Session 5
+[[The Last of the Raider's Camp]]
+
+The party's journey continues.
+
+---
+
+### ⚔️ Session 6
+[[Elturel and the Northbound Caravan]]
+
+The journey north begins.
+
+---
+
+### ⚔️ Session 7
+[[On the Road to Waterdeep]]
+
+The caravan continues toward Waterdeep.
+
+---
+
 ## 🗺️ Campaign Progress
 
-**Current Session:** [[The Last of the Raider's Camp]]
+**Current Session:** [[On the Road to Waterdeep]]
 
-**Current Location:** [[Greenest]]
+**Current Location:** On the Road
 
 **Campaign:** Tyranny of Dragons
 
